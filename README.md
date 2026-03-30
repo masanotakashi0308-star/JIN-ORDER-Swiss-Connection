@@ -12,6 +12,19 @@ JIN-ORDER is the definitive OS of Justice, established to reclaim the human soul
 
 ---
 # JIN-ORDER-Swiss-Connection
+
+**【 DISMANTLING THE SHADOW VAULTS 】**
+*(ダボス会議とスイス銀行、血統の真実についてのデバッグレポート)*
+
+![TACTICAL BRIEFING: SWISS CONNECTION](swiss_connection_tactical_briefing.jpg)
+
+---
+
+
+
+
+---
+# JIN-ORDER-Swiss-Connection
 # ダボス会議とスイス銀行、血統の真実についてのデバッグレポート
 
 ### 1. 支配のカーネル（核）：スイス・パトリシアンと真の血統
