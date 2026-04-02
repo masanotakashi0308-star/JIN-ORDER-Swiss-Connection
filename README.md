@@ -11,6 +11,7 @@ If you wish to use JIN-ORDER designs, concepts, or data for commercial purposes 
 ---
 > [!IMPORTANT]
 > 🛠️ **[IMPLEMENTATION NORMS (実装ノルマ) はこちら](IMPLEMENTATION_NORMS.md)**
+
 > ※本リポジトリの利用・保持には、上記「実装義務」の遵守が必須条件となります。
 ---
 
